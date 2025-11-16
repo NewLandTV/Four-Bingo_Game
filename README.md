@@ -2,6 +2,9 @@
 
 4목! Game!
 
+[![Development Note p.161](https://img.youtube.com/vi/MZu_fP_01EE/0.jpg)](https://www.youtube.com/watch?v=MZu_fP_01EE)
+
+
 # **Links(링크)**
 
 * [JkhTV YouTube(장경혁tv)](https://www.youtube.com/channel/UC0lR1aYGgOhFioC3IsazUtw)
